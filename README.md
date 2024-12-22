@@ -1,1 +1,1 @@
-# mmlabiitg.github.io
+Winter School -> https://mmlabiitg.github.io/wsiitg.html/
